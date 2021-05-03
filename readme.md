@@ -1,1 +1,1 @@
-This is the recipe of my chocolate coke.
+This is the recipe of my chocolate cake.
